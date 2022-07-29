@@ -1,2 +1,4 @@
 # minidog_1985-hotmail.co.th
-MiNidog1985
+MiNidog_1985
+MiNidog12345678
+TaeNaNa1234
